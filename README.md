@@ -27,8 +27,7 @@
 
 如果你对我的分享感兴趣，或者有任何问题想要交流，可以通过以下方式联系我：
 
-- **邮箱**：[example@example.com](mailto:example@example.com)
-- **社交媒体**：[Twitter](https://twitter.com/yourhandle) / [LinkedIn](https://linkedin.com/in/yourprofile)
+- **邮箱**：[2807224393@qq.com]
 
 ## 结语
 
